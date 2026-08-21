@@ -24,6 +24,6 @@ About me
 
 * 10+ years in product across fintech and martech — PayPal, Epsilon, AOL
 * Most recently Co-Founder & Head of Product and Tech Strategy at Fluence Pay, a Dubai social-commerce startup
-* Based in Dubai. Open to full-time leadership roles (VP / Director / Head of Product) and advisory or fractional work
+* Based in Dubai. Open to advisory or fractional work (Head of Product)
 
 Building something in fintech, ad-tech, or consumer product? I'd love to hear about it. [Website](https://ayusheetyagi.github.io/personal-website/) · [LinkedIn](https://www.linkedin.com/in/ayushee-tyagi/) · [Building in the Desert](https://mamabot.substack.com/) (my Substack on relocating, motherhood, and rebuilding a career)
